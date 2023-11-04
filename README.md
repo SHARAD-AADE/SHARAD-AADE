@@ -1,4 +1,4 @@
-## Hi Friends 👋
+## Namaste 🙏🏻
 
 
 ## 🌐 Socials:
